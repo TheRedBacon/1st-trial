@@ -1,4 +1,4 @@
 # 1st-trial
 
 
-## WINDSOR IS STUPID
+## WINDSOR IS THE GREATEST
